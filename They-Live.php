@@ -130,6 +130,13 @@ Is it possible that this dye has been covered up in order to hide the existence 
 <h3><a href="https://www.bitchute.com/video/XGeojZSuyU44/" target="_blank" rel="noopener noreferrer"><span style="background-color: #ff0000; color: #ffffff;">DRACONIANS ▪️ HUMAN CATTLE ▪️ UNDERGROUND TUNNELS ▪️ DEEPSTATE</span></a></h3>
 </br></br>
 
+<iframe width="640" height="360" scrolling="no" frameborder="0" style="border: none;" src="https://www.bitchute.com/embed/h053jYuY4cyK/"></iframe>
+<h2><a href="https://rumble.com/vvvepk-d-pt2.html" target="_blank" rel="noopener noreferrer"><span style="background-color: #008800; color: #ffffff;">DISCLOSURE (Part 2) | Antarctica, the Children, ET Life & more!</span></a></h2>
+</br></br>
+
+<h2><a href="https://www.bitchute.com/video/h053jYuY4cyK/" target="_blank" rel="noopener noreferrer"><span style="background-color: #ff0000; color: #ffffff;">DISCLOSURE (PART 2) ANTARCTICA, THE TUNNELS, THE CHILDREN, ET LIFE, INNER EARTH ETC.</span></a></h2>
+</br></br>
+
 <h3><a href="https://www.bitchute.com/video/YHVHCK3zlmaS/" target="_blank" rel="noopener noreferrer"><span style="background-color: #ff0000; color: #ffffff;">INTERVIEW MET EX NAVY SEAL BILL WOOD RE-UPLOAD</span></a></h3>
 </br></br>
 
